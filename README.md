@@ -1,1 +1,1 @@
-Created by [Freak](https://github.com/Freaky-coder-dude)
+Created by Sophia
